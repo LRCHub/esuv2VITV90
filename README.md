@@ -1,0 +1,54 @@
+# THE ORAL CIGARETTES – BUG
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+聴こえないフリして砕けた衝動
+マジカル鳴らして世界にGood bye!!
+息つく暇もないくらいもがいてbleeding bleed out!!
+足して欠けて増やす悪夢の印
+止めどなく流れる愛は偽物
+kissしてhugしてBUGって
+エンドロールへようこそ
+虚しい 悲しい 寂しい連鎖はいらない
+ただいらない やいやい
+ニヒルな笑みを浮かべてピリオド
+Wonderland 迷いの森へ
+白黒灰色 夢を語って
+お前と恋に埋める世界線
+桃源郷から逃避行
+Yeah!! Hold me!!
+I don't give a fuck ほっといて
+引き離した瞳でXです
+There is nothing to say
+ここらでBUG BUg bUuuG Buggggg
+I don't give a fuck ほっといて
+抜け出せない このままXです
+Tell me what you gonna do
+Tell me what you gonna do
+BUG BUg bUuug Buggggg
+Wonderland
+迷いの森制した
+この藍色羽を広げて
+お前を恋に埋める世界線
+桃源郷から飛び越えよう
+聴こえないフリして無様な形相
+そろそろ飽きたな?世界にGood bye!!
+息つく暇もないくらいもがいたbleeding bleed out!!
+『イ生カせて』喘ぐ声は悪夢と変わり
+求められる正当性は曲者
+kissして?hugして?BUGって?
+本当は何を壊すの
+苦しい苦しい苦しい連鎖は苦しいただ苦しいやいやい
+いつかは恨み喰らってピリオド
+Yeah!! Hold me!!
+I don't give a fuck ほっといて
+引き離した瞳でXです
+There is nothing to say
+ここらでBUG BUg bUuuG Buggggg
+I don't give a fuck ほっといて
+抜け出せない このままXです
+Tell me what you gonna do
+Tell me what you gonna do
+BUG BUg bUuug Buggggg
+```
